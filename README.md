@@ -1,2 +1,0 @@
-# -plokijuy
-utjfyhgbc
